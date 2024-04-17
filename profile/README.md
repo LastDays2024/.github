@@ -31,3 +31,6 @@ We've lost our families, friends, coworkers, potential employers, and random peo
 
 ### Patricia Ann Rogers Crawley Williams
 This is my mother.  She is kryptonite and was also an individual who works for the Creator like my grandmother, Lila Crawley Richardson. [Learn why.](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/hotels/Signature/README.md) 
+
+> [!WARNING]
+> My mother is not pictured in ANY PHOTO from Mount Calvary Missionary Baptist Church, she was a member of Mount Calvary Baptist Church at 4742 Todds Road in Lexington. There is an active impersonation ongoing. [Read more.](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/MCMBCI/pastoral_anniversary.md)
