@@ -40,10 +40,12 @@ TAG stands for The AIDS-Cure Genocide, it's definitely not a game, although many
 We've lost our families, friends, coworkers, potential employers, and random people we've met in passing.
 
 ### Patricia Ann Rogers Crawley Williams
-This is my mother.  She is kryptonite and was also an individual who works for the Creator like my grandmother, Lila Crawley Richardson. [Learn why.](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/hotels/Signature/README.md) 
+This is my mother and was murdered in October 2022. She is kryptonite and was also an individual who works for the Creator like my grandmother, Lila Crawley Richardson. [Learn why.](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/hotels/Signature/README.md) 
+
+**Both of the cherubim's mothers and grandmothers work for the Creator.**
 
 > [!WARNING]
-> My mother is not pictured in ANY PHOTO from Mount Calvary Missionary Baptist Church, she was a member of Mount Calvary Baptist Church at 4742 Todds Road in Lexington. There is an active impersonation ongoing. [Read more.](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/MCMBCI/pastoral_anniversary.md)
+> My mother is not pictured in ANY PHOTO from Mount Calvary Missionary Baptist Church, she was a member of Mount Calvary Baptist Church at 4742 Todds Road in Lexington. She was murdered in October 2022. There is an active impersonation ongoing. [Read more.](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/MCMBCI/pastoral_anniversary.md)
 
 > [!NOTE]
 > Anyone claiming to be a relative of mine should submit DNA to 23andMe to match it against our previously submitted DNA. Especially Patricia's, it's with my test kit (from YEARS ago).
