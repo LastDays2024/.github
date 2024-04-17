@@ -24,11 +24,13 @@ If you're reading along in the Bible, you can read about "the street" in [Revela
 
 # You Should Know
 ## Why You Haven't Heard About TAG
-Quite frankly, if you got this web address from the door to my apartment or from inside of it you are NEW TO TAG and I'm likely the only person youll encounter who knows about it.
+Quite frankly, if you got this web address from the door to my apartment or from inside of it you are NEW TO TAG and I'm likely the only person youll encounter who knows about it and will freely tell you.
 
 Everyone else is DEAD or in hiding.  Those in the federal government or CIA/Company that know are likely busy with pressuring local governments to keep quiet.
 
-Late arrivals to this game (that will cost you your life) have been CIs from the FBI, inmates, people on probation or parole. Most have left and been killed.  I've been in this game of TAG since 2017.
+Late arrivals to this game have been CIs from the FBI, inmates, people on probation or parole. Most have left and been killed.  I've been in this game of TAG since 2017.
+
+TAG stands for The AIDS-Cure Genocide, it's definitely not a game, although many keep treating it like one. As a child, you never wanted to be "it." Whoever brought you into this game, made you "it" by default.
 
 ## Notable Victims of TAG
 ### Who We All Lost (including YOU)
