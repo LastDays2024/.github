@@ -30,7 +30,7 @@ Everyone else is DEAD or in hiding.  Those in the federal government or CIA/Comp
 
 Late arrivals to this game have been CIs from the FBI, inmates, people on probation or parole. Most have left and been killed.  I've been in this game of TAG since 2017.
 
-TAG stands for The AIDS-Cure Genocide, it's definitely not a game, although many keep treating it like one. As a child, you never wanted to be "it." Whoever brought you into this game, made you "it" by default.
+TAG stands for The AIDS-Cure Genocide, it's definitely not a game, although many keep treating it like one. As a child playing TAG, you never wanted to be "it." Whoever brought you into this game, made you "it" by default. 
 
 ## Notable Victims of TAG
 ### Who We All Lost (including YOU)
