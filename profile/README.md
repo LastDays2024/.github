@@ -19,4 +19,15 @@ Prince's song "Alphabet Street" gives you some insight. [You can read about it h
 If you're reading along in the Bible, you can read about "the street" in [Revelation 18:21-24](https://www.biblegateway.com/passage/?search=Revelation%2018:21-24&version=KJV).
 
 # You Should Know
-[Madonna is dead](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/hotels/Celebrity/README.md) and so are [many other artists](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/hotels/Dancefloor/README.md), musicians, business people, [our families](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/hotels/Signature/README.md) and friends, all because of [TAG](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG) or The AIDS-Cure Genocide, which is corporate greed and BigPharma's response to an HIV/AIDS cure, a forthcoming product called Spark, direct from your Creator, the Creator. Spark eliminates and prevents all disease by fully activating the human immune system. What modern science considers a healthy immune system (T4s and T6s), the Creator cobsiders the last line of defense or a "failsafe."
+## What is TAG
+[TAG](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG) or The AIDS-Cure Genocide, which is corporate greed and BigPharma's response to an HIV/AIDS cure, a forthcoming product called Spark, direct from your Creator, the Creator. Spark eliminates and prevents all disease by fully activating the human immune system. What modern science considers a healthy immune system (T4s and T6s), the Creator cobsiders the last line of defense or a "failsafe."
+
+## Notable Victims of TAG
+### Who We All Lost (including YOU)
+[Madonna is dead](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/hotels/Celebrity/README.md) and so are [many other artists](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/hotels/Dancefloor/README.md), musicians, celebrities and business people.
+
+### Who The Cherubim Lost
+We've lost our families, friends, coworkers, potential employers, and random people we've met in passing.
+
+### Patricia Ann Rogers Crawley Williams
+This is my mother.  She is kryptonite and was also an individual who works for the Creator like my grandmother, Lila Crawley Richardson. [Learn why.](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/hotels/Signature/README.md) 
