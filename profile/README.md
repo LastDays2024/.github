@@ -6,5 +6,4 @@
 
 [The Massacre of Mount Calvary Baptist Church in Lexington, Kentucky](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/POW/MCBC/README.md)
 
-[Madonna is dead](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/hotels/Celebrity/README.md) and so are many other artists, musicians, business people, our families and friends, all because of corporate greed and BigPharma's response to an HIV/AIDS cure which is really a product called Spark, direct from your Creator, the Creator, that eliminates and prevents all disease by turning on the human immune system which humans managed to turn off centuries ago.
-
+[Madonna is dead](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/hotels/Celebrity/README.md) and so are many other artists, musicians, business people, our families and friends, all because of [TAG](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG) or The AIDS-Cure Genocide, which is corporate greed and BigPharma's response to an HIV/AIDS cure, a forthcoming product called Spark, direct from your Creator, the Creator. Spark eliminates and prevents all disease by turning on the human immune system which humans managed to turn off centuries ago. 
