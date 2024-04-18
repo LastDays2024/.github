@@ -16,7 +16,7 @@ The CIA developed a plan and scheme to hide the death toll of this genocide. The
 
 The "hotel" is not a place of rest or solace. It is a theater of malevolence, orchestrated by unseen hands—the very hands that pull strings in the corridors of power. Its purpose? To conceal the aftermath of violence, to shroud murder victims in a web of deceit. But this is no ordinary cover-up; it is an elaborate dance of identity, where the dead are kept alive through macabre metamorphosis.
 
-The most important hotel is in the Signature Line, the PARC, named for my mother Patricia Ann Rogers Crawley. It is based in Sandy Hook, Tennessee. Showing you the CIA's activities there will help us shine a light on this genocide. 
+The most important hotel is in the Signature Line, the PARC, named for my mother Patricia Ann Rogers Crawley. It is based in Sandy Hook, Tennessee. The CIA must hide the atrocities they carried out there and need her hotel to prevent us from showing the world.
 
 Prince's song "Alphabet Street" gives you some insight. [You can read about it here](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/hotels/Signature/README.md)
 
